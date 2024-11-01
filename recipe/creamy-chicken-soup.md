@@ -46,7 +46,7 @@
 4. Add the stock and let it cook for a few minutes.
 5. Add the schlagsahne/milk and let it cook for a few minutes.
 6. Add the chicken, mushrooms, and bacon and let it cook for a few minutes.
-7. Add salt and pepper to taste.
+7. Add salt and crushed pepper to taste.
 8. Garnish with Parsley.
 9. Serve with Walnut Bread.
 
